@@ -1,5 +1,5 @@
 # 💫 About Me:
-Website & software designer and developer<br><br>Ceo: Bodjex.site & Bodjex.ir & Bigx.ir & nillco.ir & 9dev.ir<br>
+Website & software designer and developer<br>
 
 
 ## 🌐 Socials:
